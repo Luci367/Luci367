@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning basics of programming
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me extrawalaacc1@tutanota.com
+- 📫 How to reach me ffarhaan34@gmail.com
 
 
 <!---
